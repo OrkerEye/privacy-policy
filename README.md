@@ -1,4 +1,4 @@
-# Privacy Policy for Orker Eye - Smart Monitoring
+# Privacy Policy for Orker Construction Monitoring
 
 At Orker Private Limited, we are committed to protecting your privacy. This privacy policy explains how we collect, use, and share your personal information when you use our Orker Eye - Smart Monitoring app. By using our app, you agree to the terms of this privacy policy.
 
